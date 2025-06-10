@@ -1,4 +1,4 @@
-![logo_no_bg](https://github.com/user-attachments/assets/fe51bfa4-0f8d-408b-b484-d13626b192dd)
+![logo_no_bg1](https://github.com/user-attachments/assets/b5ecc5a7-2089-4c40-90ee-bfe5ec035c9f)
 
 We help ambitious startups and businesses transform their vision into reality through world-class digital solutions. Whether you are just starting out or scaling fast, we provide the tools and expertise you need to succeed in Pakistan’s dynamic digital landscape.
 
