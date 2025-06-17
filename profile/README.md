@@ -30,4 +30,5 @@ We love helping businesses grow.
 
 If you want to work with us or have an idea, feel free to contact us.
 
-# Coming Soon.
+Email: info@lyvio.org
+Website: https://lyvio.org
